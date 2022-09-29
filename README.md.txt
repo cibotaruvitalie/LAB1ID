@@ -1,0 +1,1 @@
+Descriere scurta bla bla
